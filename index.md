@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Bienvenid@ a mi sitio
 
-I'm glad you are here. I plan to talk about ...
+Espero que su estadía sea de provecho =)
